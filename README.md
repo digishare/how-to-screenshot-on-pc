@@ -1,6 +1,6 @@
 # How to screenshot on PC ?
 
-[![How to screenshot on PC](red2.png)](https://computersolve.com/how-to-take-a-screenshot-on-a-pc/)
+[![How to screenshot on PC](red2.png)](https://icncomputer.com/how-to-take-a-screenshot-on-a-pc/)
 
 
 
